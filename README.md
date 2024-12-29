@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1lEt2Zf_-yoE6HKomKF7qB2omOrjpMDV9/view?usp=sharing](https://drive.google.com/file/d/1lEt2Zf_-yoE6HKomKF7qB2omOrjpMDV9/view?usp=sharing)
 
-- ⚡ Fun fact **Binge-watching pro with unstoppable focus!**
+- ⚡ Fun fact **Binge-watcher pro with unstoppable focus!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
